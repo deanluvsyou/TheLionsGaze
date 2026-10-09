@@ -1,5 +1,6 @@
 ...
-<img width="600" height="600" alt="Image" src="https://github.com/user-attachments/assets/60e446e5-5e91-4536-b5c0-4057a6ad1b44" />
+<img width="735" height="490" alt="Image" src="https://github.com/user-attachments/assets/3be9fa34-22b6-40e6-89b1-0d260d046062" />
 
 
-# 𐙚 ‧₊˚ ⋅*HELLO* !
+ㅤ۫ ㅤ     ㅤ꒰              𝗉𝗈𝗋𝖼𝖾𝐥𝐚𝗂𝗇𝖾                ꒱     ㅤ۫ ㅤ
+                         𖹭          𝟒𝟒𝟒  ㅤㅤ໒
